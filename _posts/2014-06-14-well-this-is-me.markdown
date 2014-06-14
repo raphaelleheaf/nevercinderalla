@@ -5,22 +5,7 @@ date:   2014-06-14 17:37:19
 categories: intro
 ---
 
-![The honest side of me](/_assets/photo3.jpg)
 
-30 something, single and not your perfect 10 (or 8, or 6). Weight has always been an issue. Being half-french means I've been gifted with curves, but only around my bottom and hips. In fact I probably tell people I'm 5'4" and 60kg, on a bad day, I'm more liek 5'3" and 70kg on a good day.
-
-I really trully dislike exercise. I'm aiming for 4 times per week, although I'm lucky if it's twice and for some insane reason deicded to enter a 10k. It's total hell.
-
-I've spent my life feeling like I was never quite perfect enough. And now I look back at pictures of when I was 18 and think about how much time I wasted, wanting to be thinner. Some things don't change.
-
-Oh yes, I'm also single with a manic dog. So I have all the joys of dating and quiet nights. Actually, I'd like to find someone and I'm trying to not dream that Mr Perfect really does exist. What is left when you get past your twenties is pretty depressing at times though.
-
-#### Why start this?
-
-test
-test
-*test
-*test
 
 
 Keep in touch by following me on [Twitter](https://twitter.com/cinderellanever) 
