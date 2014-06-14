@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-![Moi](/_assets/photo2.jpg)
+![Moi](https://github.com/raphaelleheaf/nevercinderella/tree/gh-pages/_assets/photo2.jpg)
 
 30-something, exercisng hating, Londoner. Enjoying (at times) the single life and always ensuring to be well dressed for any occasion.
 
