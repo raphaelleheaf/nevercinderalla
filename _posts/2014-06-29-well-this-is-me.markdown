@@ -16,7 +16,7 @@ Actually so what, I read the next fad diet. I spend day off carbs or drinking on
 
 So, this is me. 32 this year. Single. Curvy. Realising that I'll never quite be a Disney Cinderella but maybe I can find a better role model for the modern day fairy-tale to happen.
 
-p.s. O'm off to duck and waffle tomorrow which is going to completely blow any attempt at healthy I've been trying but at least I'll walk in there in a pait of gold louboutins.
+p.s. O'm off to duck and waffle tomorrow which is going to completely blow any attempt at healthy I've been trying but at least I'll walk in there in a pair of gold louboutins.
 
 
 Keep in touch by following me on [Twitter](https://twitter.com/cinderellanever) 
