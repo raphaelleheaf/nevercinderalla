@@ -1,5 +1,3 @@
-| strip_html
-
 ---
 layout: post
 title:  "Well, this is me"
