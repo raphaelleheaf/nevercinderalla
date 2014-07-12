@@ -5,8 +5,8 @@ date:   2014-06-29 23:37:19
 categories: intro
 ---
 
-<p>Sunday evening, listening to Kasabian Live at Glasonbury. 
-Sat on the sofa I'm just missing a good glass of wine or gin & tonic. </p>
+"Sunday evening, listening to Kasabian Live at Glasonbury. 
+Sat on the sofa I'm just missing a good glass of wine or gin & tonic."
 
 I've eaten half a bowl of pea & mint soup for dinner. It's my new cold turkey to keep the calories low. Although, I did have a single poached eggs royale for brunch, over which I debate with a friend whether I was really kidding myself about having an active lifestyle. Maybe he had a point, but just because I'm not running every day doesn't make me a sloth, does it? I could be worse.
 
