@@ -8,11 +8,11 @@ categories: fashion
 Yes, it was sunny and yes, I was at Lovebox.
 Here's how I styled myself.
 
-##Black Crop Top & Grey Slipced Skirt from Topshop
+##Black crop top & grey spliced skirt from Topshop
 
 ![Lovebox outfit](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/lovebox_outfit.jpg)
 
-##Trainers Superga with JCrew in Silver with sparkly ankle sock from Tabio
+##Trainers Superga with JCrew in silver with sparkly ankle socks from Tabio
 
 ![Flying high](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/shoes.jpg)
 
