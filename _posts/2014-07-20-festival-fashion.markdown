@@ -5,8 +5,8 @@ date:   2014-07-20 17:57:12
 categories: fashion
 ---
 
-Yes, it was sunny and yes, I was at Lovebox.
-Here's how I styled myself.
+Yesterday, I was at [Lovebox Festival](http://loveboxfestival.com/). We danced all afternoon to Dimitri and Crystal Fighters, chilled out to Bonobo and rounded the evening off with a great set from M.I.A.
+Unlike the weather forecast, it was hot and sunny all day. So, here's how I styled myself.
 
 ##Black crop top & grey spliced skirt from Topshop
 
