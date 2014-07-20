@@ -16,7 +16,7 @@ Here's how I styled myself.
 
 ![Flying high](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/shoes.jpg)
 
-##Hair accesories from the festival
+##Hair accessories bought from the festival
 
 ![Flowers in your hair](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/flowers_in_your_hair.jpg)
 
