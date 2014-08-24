@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Becoming the Cocktail Mistress"
-date:   2014-07-20 17:57:12
+date:   2014-08-14 12:35:12
 categories: mixology
 ---
 
@@ -9,25 +9,25 @@ I was inspired by the best Old Fashioned I've ever had at [Untitled Supper Club]
 
 Fancy joining me? Here's a selection of what I've been up to.
 
-##Aviation ####with Aviation Gin no less
+##Aviation (with Aviation Gin no less)
 
 ![Aviation](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/aviation.jpg)
 
-2oz gin
-0.5oz Marashino Liquor
-0.25oz Crème de Voilette
-0.5oz fresh lemon juice
+* 2oz gin  
+* 0.5oz Marashino Liquor  
+* 0.25oz Crème de Voilette  
+* 0.5oz fresh lemon juice  
 
 Ice, shake and serve with a cherry.
 
 ##Whisky Sour
 
-![Whisky Sour](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/whiskey_sour.jpg)
+![Whisky Sour](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/whisky_sour.jpg)
 
-2oz whisky or bourbon
-0.75oz fresh lemon juice
-0.75oz simple syrup
-1 egg white
+* 2oz whisky or bourbon  
+* 0.75oz fresh lemon juice  
+* 0.75oz simple syrup  
+* 1 egg white  
 
 Shake dry, ice, shake and serve with a lemon or orange wedge.
 
@@ -35,11 +35,11 @@ Shake dry, ice, shake and serve with a lemon or orange wedge.
 
 ![Mint Julep](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/mint_julep.jpg)
 
-2oz bourbon
-0.25oz simple syrup
-10 springs of fresh mint
+* 2oz bourbon  
+* 0.25oz simple syrup  
+* 10 springs of fresh mint  
 
-muddle the mint & simple syrup, stir in the bourbon, add crushed ice and garnish with mint.
+Muddle the mint & simple syrup, stir in the bourbon, add crushed ice and garnish with mint.
 
 
 Keep in touch by following me on [Twitter](https://twitter.com/cinderellanever) 
