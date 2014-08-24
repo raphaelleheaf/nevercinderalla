@@ -2,7 +2,7 @@
 layout: post
 title:  "A healthy Summer lunch"
 date:   2014-07-05 12:43:32
-categories: recipes
+categories: health
 ---
 
 ![Mmmmmmmm](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/salad.jpg)
