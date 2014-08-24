@@ -34,7 +34,7 @@ Necklaces from J.Crew & thanks to [Blowtique](http://www.blowtique.com/) for my 
 
 Chicago is a great city. It's easy to explore, get about and there's lots to visit. I got a [Citypass](http://www.citypass.com/chicago?mv_source=rkg&creative=53482547789&adpos=1t1&device=c&network=g&matchtype=e&gclid=CMXNwZrkq8ACFRHHtAod6hAAYg) and in two days ran around and managed to use all the tickets. [Uber](https://www.uber.com/invite/qtjwq) was quick, easy and cheap to use but walking around the city is a joy. 
 
-![Reflections](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/reflections.JPG) ![Dipping my toes in Lake Michigan](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/toes.JPG) ![Movie set](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/movies.JPG) ![Butterflies](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/buterflies.JPG)
+![Reflections](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/reflections.JPG) ![Dipping my toes in Lake Michigan](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/toes.JPG) ![Movie set](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/movies.JPG) ![Butterflies](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/butterflies.JPG)
 
 At 2pm everyday they release new butterflies into the haven at the [Peggy Notebaert Nature Museum](http://www.naturemuseum.org/the-museum)
 
