@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "going green"
+title:  "Going green"
 date:   2014-08-14 12:13:12
 categories: health
 ---
