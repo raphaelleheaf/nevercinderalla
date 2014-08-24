@@ -36,7 +36,7 @@ Chicago is a great city. It's easy to explore, get about and there's lots to vis
 
 ![Reflections](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/reflections.JPG) ![Dipping my toes in Lake Michigan](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/toes.JPG) ![Movie set](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/movies.JPG) ![Butterflies](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/butterflies.JPG)
 
-At 2pm everyday they release new butterflies into the haven at the [Peggy Notebaert Nature Museum](http://www.naturemuseum.org/the-museum)
+At 2pm everyday the [Peggy Notebaert Nature Museum](http://www.naturemuseum.org/the-museum) release new butterflies into the haven at 
 
 ![Oh Chicago](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/chicago.JPG) ![1043ft up](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/400mup.JPG) ![Best whisky in town](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/untitled.JPG)
 
