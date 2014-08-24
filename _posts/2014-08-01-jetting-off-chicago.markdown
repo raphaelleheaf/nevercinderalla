@@ -9,7 +9,7 @@ I've spoilt myself with holidays this year. Austin, Tokyo, and now Chicago!
 
 ![Starting the trip, the right way](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/champagne.jpg)
 
-I made some wonderful friends when I stayed in an [Airbnb](https://www.airbnb.co.uk/) in Austin (it's one of the additional benefits to staying with locals) and we all decided to meet up again for this eyar's [Lollapalooza](http://www.lollapalooza.com/). What better excuse to visit somewhere new.
+I made some wonderful friends when I stayed in an [Airbnb](https://www.airbnb.co.uk/) in Austin (it's one of the additional benefits to staying with locals) and we all decided to meet up again for this year's [Lollapalooza](http://www.lollapalooza.com/). What better excuse to visit somewhere new.
 
 ###Music in the Windy City
 
@@ -24,7 +24,7 @@ It's a pretty good location to enjoy a festival. Catching a bit of Churches, dis
 And of course, plenty of opportunity for some festival fashion, as well as showing off my new tattoos.
 
 ![Feeling '20s'](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/1920s.jpg)
-Headband from Wallamrt
+Headband from Wallmart
 
 ![Hawaiian Vibe](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/hawaiian.jpg)
 Crop top from Topshop
@@ -36,7 +36,7 @@ Necklaces from J.Crew & thanks to [Blowtique](http://www.blowtique.com/) for my 
 
 Chicago is a great city. It's easy to explore, get about and there's lots to visit. I got a [Citypass](http://www.citypass.com/chicago?mv_source=rkg&creative=53482547789&adpos=1t1&device=c&network=g&matchtype=e&gclid=CMXNwZrkq8ACFRHHtAod6hAAYg) and in two days ran around and managed to use all the tickets. [Uber](https://www.uber.com/invite/qtjwq) was quick, easy and cheap to use but walking around the city is a joy. 
 
-[Reflections](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/reflections.jpg)
+![Reflections](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/reflections.jpg)
 
 ![Dipping my toes in Lake Michigan](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/toes.jpg)
 
@@ -51,6 +51,8 @@ At 2pm everyday they release new butterflies into the haven at the [Peggy Noteba
 
 ![Best whisky in town](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/untitled.jpg)
 Check out [Untitled Supper Club](http://untitledchicago.com/) and ask Robert at the bar for one of their famous Old Fashioneds.
+
+![Flowers in your hair](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/flowers_in_your_hair.jpg)
 
 
 
