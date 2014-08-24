@@ -52,9 +52,6 @@ At 2pm everyday they release new butterflies into the haven at the [Peggy Noteba
 ![Best whisky in town](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/untitled.jpg)
 Check out [Untitled Supper Club](http://untitledchicago.com/) and ask Robert at the bar for one of their famous Old Fashioneds.
 
-![Flowers in your hair](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/flowers_in_your_hair.jpg)
-
-
 
 Keep in touch by following me on [Twitter](https://twitter.com/cinderellanever) 
 
