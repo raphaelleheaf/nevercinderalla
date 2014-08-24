@@ -21,33 +21,25 @@ It's a pretty good location to enjoy a festival. Catching a bit of Churches, dis
 
 And of course, plenty of opportunity for some festival fashion, as well as showing off my new tattoos.
 
-![Feeling '20s'](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/1920s.JPG)
+![Feeling '20s'](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/1920s.JPG)  
 Headband from Wallmart
 
-![Hawaiian Vibe](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/hawaiian.JPG)
+![Hawaiian Vibe](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/hawaiian.JPG)  
 Crop top from Topshop
 
-![Ready to dance](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/diamonds.JPG) 
+![Ready to dance](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/diamonds.JPG)  
 Necklaces from J.Crew & thanks to [Blowtique](http://www.blowtique.com/) for my last minute appointment to glam me up.
 
 ###Wandering the city
 
 Chicago is a great city. It's easy to explore, get about and there's lots to visit. I got a [Citypass](http://www.citypass.com/chicago?mv_source=rkg&creative=53482547789&adpos=1t1&device=c&network=g&matchtype=e&gclid=CMXNwZrkq8ACFRHHtAod6hAAYg) and in two days ran around and managed to use all the tickets. [Uber](https://www.uber.com/invite/qtjwq) was quick, easy and cheap to use but walking around the city is a joy. 
 
-![Reflections](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/reflections.JPG)
+![Reflections](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/reflections.JPG) ![Dipping my toes in Lake Michigan](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/toes.JPG) ![Movie set](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/movies.JPG) ![Butterflies](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/buterflies.JPG)
 
-![Dipping my toes in Lake Michigan](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/toes.JPG)
-
-![Movie set](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/movies.JPG)
-
-![Butterflies](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/buterflies.JPG)
 At 2pm everyday they release new butterflies into the haven at the [Peggy Notebaert Nature Museum](http://www.naturemuseum.org/the-museum)
 
-![Oh Chicago](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/chicago.JPG)
+![Oh Chicago](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/chicago.JPG) ![1043ft up](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/400mup.JPG) ![Best whisky in town](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/untitled.JPG)
 
-![1043ft up](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/400mup.JPG)
-
-![Best whisky in town](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/untitled.JPG)
 Check out [Untitled Supper Club](http://untitledchicago.com/) and ask Robert at the bar for one of their famous Old Fashioneds.
 
 
