@@ -50,19 +50,22 @@ a:visited { color: #205caa; }
 .site-title,
 .site-title:hover,
 .site-title:visited {
+  font-family: 'Playball', cursive;
   display: block;
   color: #333;
-  font-size: 26px;
+  font-size: 56px;
   letter-spacing: -1px;
   float: left;
   line-height: 56px;
   position: relative;
   z-index: 1;
+  margin-top: 20px;
 }
 
 .site-nav {
   float: right;
   line-height: 56px;
+  margin-top: 20px;
 }
 
 .site-nav .menu-icon { display: none; }
@@ -81,7 +84,8 @@ a:visited { color: #205caa; }
 }
 
 .footer-heading {
-  font-size: 18px;
+  font-family: 'Playball', cursive;
+  font-size: 24px;
   font-weight: 300;
   letter-spacing: -.5px;
   margin-bottom: 15px;
