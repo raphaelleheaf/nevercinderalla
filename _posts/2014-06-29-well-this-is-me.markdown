@@ -2,7 +2,7 @@
 layout: post
 title:  "Well, this is me"
 date:   2014-06-29 23:37:19
-categories: intro
+categories: fashion
 ---
 
 "Sunday evening, listening to Kasabian Live at Glasonbury. 

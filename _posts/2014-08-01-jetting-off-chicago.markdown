@@ -2,7 +2,7 @@
 layout: post
 title:  "Jetting Off to Chicago"
 date:   2014-08-07 08:30:12
-categories: holiday
+categories: travel
 ---
 
 I've spoilt myself with holidays this year. Austin, Tokyo, and now Chicago! 
