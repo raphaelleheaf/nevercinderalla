@@ -9,10 +9,10 @@ categories: fashion
 
 Green mid-length skirts, sporting red nails & carrying panda bags.
 
-![Panda](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/panda-bag.jpg)
- Dress by Closet on Asos
- Nail Varnish, The thrill of Brazil by O.P.I
- Panda bag by Ola Kiely
+![Panda](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/panda-bag.jpg)  
+  Dress by Closet on Asos  
+  Nail Varnish, The thrill of Brazil by O.P.I  
+  Panda bag by Ola Kiely  
 
 
 Keep in touch by following me on [Twitter](https://twitter.com/cinderellanever) 
