@@ -1,0 +1,16 @@
+---
+layout: default
+---
+
+<div class="lookbooks">
+
+<h1>Lookbooks</h1>
+<ul>
+{% for lookbooks in site.data.lookbooks %}
+  <li>
+    <a data-pin-do="embedBoard" href="http://www.pinterest.com/{{ lookbooks.id }}" data-pin-scale-width="100" data-pin-scale-height="100" data-pin-board-width="350"></a>
+  </li>
+{% endfor %}
+</ul>
+
+</div>
