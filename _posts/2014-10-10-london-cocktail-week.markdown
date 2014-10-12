@@ -26,7 +26,7 @@ To The Whiskey Exchange creating a the best Martini I've ever tasted and introdu
 
 
 ![Love Child](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/love_child.jpg)  
-And the very awesomely named, _Berlusconi Love Child_ (a mix of Monkey Shoulder whiskey, Amaro & Crème de Pêche) at the Monkey Shoulder popup, The Cowbell, which also had amazing Glaswegian Djs setting the party vibe.  
+And the very awesomely named, __Berlusconi Love Child__ (a mix of Monkey Shoulder whiskey, Amaro & Crème de Pêche) at the Monkey Shoulder popup, The Cowbell, which also had amazing Glaswegian Djs setting the party vibe.  
 
 
 
