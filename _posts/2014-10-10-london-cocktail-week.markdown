@@ -16,15 +16,15 @@ Hundreds of pop ups were all over the city. Along with the many tastings, worksh
 With hubs across the city, it's important to pick an area for the evening and stay there.
 Covent Garden was my favourite. 
 
-From the Bulleit 1950s bar
+From the Bulleit 1950s bar at the [Covent Garden Cocktail Club](http://coventgardencocktailclub.co.uk/).  
 ![Bulleit](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/bulleit.jpg)
 
 
-To The Whiskey Exchange creating a the best Martini I've ever tasted and introducing me to Mirto
+To The Whiskey Exchange creating a the best Martini I've ever tasted and introducing me to [Mirto](http://www.nifeislife.com/mirto-sardegna-70cl-p-2021.html).  
 ![Martini](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/martini.jpg)
 
 
-And the very awesomely named, Berlusconi Love Child (a mix of Monkey Shoulder whiskey, Amaro & Crème de Pêche) at the Monkey Shoulder popup, The Cowbell, which also had amazing Glaswegian Djs setting the party vibe.
+And the very awesomely named, Berlusconi Love Child (a mix of Monkey Shoulder whiskey, Amaro & Crème de Pêche) at the Monkey Shoulder popup, The Cowbell, which also had amazing Glaswegian Djs setting the party vibe.  
 ![Love Child](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/love_child.jpg)
 
 
