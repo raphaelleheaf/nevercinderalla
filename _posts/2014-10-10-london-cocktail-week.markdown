@@ -2,7 +2,7 @@
 layout: post
 title:  "London Cocktail Week 2014"
 date:   2014-10-10 19:41:19
-categories: cocktails
+categories: mixology
 ---
 
 ![Banner](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/banner.jpg)
