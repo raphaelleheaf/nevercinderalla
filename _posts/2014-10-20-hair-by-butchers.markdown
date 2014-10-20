@@ -7,7 +7,7 @@ categories: beauty
 
 ![Pink Dipdye](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/dipdye.jpg)
 
-After months of resisting and being really bad about going to the haridresser. I finally wandered up Hackney Road to try a new salon; Butchers. Technically it's a friend's new business and after visiting on the opening night I was intrigued.
+After months of resisting and being really bad about going to the haridresser. I finally wandered up Hackney Road to try a new salon; [Butchers](http://butcherssalon.com/). Technically it's a friend's new business and after visiting on the opening night I was intrigued.
 
 ![Long](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/long_hair.jpg)
 
