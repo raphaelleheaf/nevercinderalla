@@ -5,7 +5,7 @@ date:   2014-12-22 19:26:13
 categories: health
 ---
 
-![Daily delivery](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/delivery.jpg)
+![Daily delivery](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/raw_and_juicy_delivery.jpg)
 
 Apologies for the lack of blog posts for the last few weeks. It's been an exciting if stressful time as I moved into a little house and became a [Bermondsey Girl](https://twitter.com/hashtag/BermondseyGirl?src=hash&lang=en-gb). I'm really investing into making my little dream home and I'll do a blog post about the move soon.
 
