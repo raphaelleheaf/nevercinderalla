@@ -23,7 +23,7 @@ Each morning, I find I get into a routine, taking my lemon shot with bi-carb, my
 
 ![Inner Me](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/inner_me.jpg)
 
-I also decided this time to start taking a series of pills aimed at the 'Hectic 30s' by [Inner Me](https://www.innerme.co.uk/). A new subscirption supplement service. Alongside the kelp tablets I get from Raw & Juicy and my usual Pycnogenol teblet (French pine bark that helps the blood absorb oxygen), these extra supplements give me everything that I need, tailored for the fact that I'm a lady who like to keep life to it's fullest in my 30s.
+I also decided this time to start taking a series of **Daily 4 Me** supplements aimed at the 'Hectic 30s' by [Inner Me](https://www.innerme.co.uk/). A new subscirption supplement service. Alongside the kelp tablets I get from Raw & Juicy and my usual Pycnogenol teblet (French pine bark that helps the blood absorb oxygen), these extra supplements give me everything that I need, tailored for the fact that I'm a lady who like to keep life to it's fullest in my 30s.
 
 Other than that you can choose when and which juice you want to drink throughout the day, and as they are delivered daily, there's usally a different choice each day. They range from grapefruit and cayenne pepper; to carrots, ginger, lime and lemon; to a personal faourite tomatoes, celery and cucumber. With the buillon in the evening and herbal teas. You'll struggle to get hungry and feel great at the same time.
 
