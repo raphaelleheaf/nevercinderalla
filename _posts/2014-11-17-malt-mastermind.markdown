@@ -23,7 +23,7 @@ Last Monday, I was very kindly invited to the [Glenfiddich Malt Mastermind](http
 
 The final consisted of a quick fire question round, the three selected barmen had to create a cocktail that embodied the essence of Glenfiddich. The winning drink was by Alistair Reynolds from [Hawksmoor](http://thehawksmoor.com/drink/wine). They're really are upping their game in the fine cocktail hangouts. While we couldn't all get one to try, the Old Fashioned and long drink, Apples & Pears (Glenfiddich, Pear juice and Ginger syrup) was a very nice additional to a Monday.
 
-Here's to bringing more people into the world of whiskeys.
+Here's to bringing more people into the world of whiskeys.  
 ![Nicole likes whiskey](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/nicole_and_whiskey.jpg)
 
 
