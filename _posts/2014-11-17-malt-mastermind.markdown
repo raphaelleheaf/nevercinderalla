@@ -11,7 +11,7 @@ Whiskey is quickly becoming a favourite in cocktails these days. As you may have
 
 Thanks to my lovely friend [Carrie Barclay](https://twitter.com/digibungalow), who after realising my mixology passion introduced me to cocktail (and whiskey connoisseur), Mark Thompson from [The Spirits Bureau](https://twitter.com/spiritsbureau). After a few 140 character tips has helped me get [my cocktail skills up](http://nevercinderella.com/mixology/2014/08/22/becoming-the-cocktail-mistress/).
 
-Mark is awesome and if you ever get to bump into him then make sure you get a few mins with him. You'll come away wanting to talk about food and drink for the rest of the evening. 
+Mark is awesome and if you ever get to bump into him then make sure you get more than a few mins with him. You'll come away knowing more than you could imagine about whiskey and wanting to talk about food and drink for the rest of the evening. 
 
 After a very nice little tasting event at the [5CC](http://www.5cc-london.com/) at the Well & Bucket, I'm now far more knowledgable about how best to enjoy whiskeys, and of course, Glenfiddich. Thnaks Mark! For future refernce; Glenfiddich on it's own is just about perfect for me.
 
