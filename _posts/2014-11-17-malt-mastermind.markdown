@@ -13,15 +13,15 @@ Thanks to my lovely friend [Carrie Barclay](https://twitter.com/digibungalow), w
 
 Mark is awesome and if you ever get to bump into him then make sure you get more than a few mins with him. You'll come away knowing more than you could imagine about whiskey and wanting to talk about food and drink for the rest of the evening. 
 
-After a very nice little tasting event at the [5CC](http://www.5cc-london.com/) at the Well & Bucket, I'm now far more knowledgable about how best to enjoy whiskeys, and of course, Glenfiddich. Thnaks Mark! For future refernce; Glenfiddich on it's own is just about perfect for me.
+After a very nice little tasting event at the [5CC](http://www.5cc-london.com/) at the Well & Bucket, I'm now far more knowledgable about how best to enjoy whiskeys, and of course, Glenfiddich. Thanks Mark! For future reference; Glenfiddich 15 year old on it's own is just about perfect for me.
 
-On a side note about the Well & Bucket; the Oysters and sliders are as fantastic as the cocktails!
+*On a side note about the Well & Bucket; the oyster platterss and sliders are as fantastic as the cocktails!*
 
 ![Malt Mastermind Award](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/malt_award.jpg)
 
-Last Monday, I was very kindly invited to the [Glenfiddich Malt Mastermind](https://www.glenfiddich.com/uk/explore/malt-mastermind/) event.  
+Last Monday, I was very kindly invited to the [Glenfiddich Malt Mastermind](https://www.glenfiddich.com/uk/explore/malt-mastermind/) event at another 5CC venue, The Electricity Showrooms.  
 
-The final consisted of a quick fire question round, the three selected barmen had to create a cocktail that embodied the essence of Glenfiddich. The winning drink was by Alistair Reynolds from [Hawksmoor](http://thehawksmoor.com/drink/wine). They're really are upping their game in the fine cocktail hangouts. While we couldn't all get one to try, the Old Fashioned and long drink, Apples & Pears (Glenfiddich, Pear juice and Ginger syrup) was a very nice additional to a Monday.
+The final consisted of a quick fire question round, and then the three selected barmen had to create a cocktail that embodied the essence of Glenfiddich. The winning drink was by Alistair Reynolds from [Hawksmoor](http://thehawksmoor.com/drink/wine). They're really are upping their game in the fine cocktail hangouts. While we couldn't all get one to try, the Old Fashioned and Apples & Pears, a long drink, Apples & Pears (made with Glenfiddich 12 year old, pear juice and ginger syrup) was a very nice addition to a Monday.
 
 Here's to bringing more people into the world of whiskeys.  
 
