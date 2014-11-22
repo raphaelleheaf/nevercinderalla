@@ -11,7 +11,7 @@ Apologies for the lack of blog posts for the last few weeks. It's been an exciti
 
 Anyway, with all the stress it was definitely time to leave the take aways behind and start getting myself sorted again. I've tried a few juice diets over the last year but my favourite by far is from [Raw and Juicy](http://www.raw-and-juicy.com/). 
 
-It's not the cheapest but I think the level of personalisation, contact and extras more than makes up for the extra few pounds. Raw & Juicy give you up to 6 organic juices from fruit and vegetables and delivery to you daily, so that they're always fresh.
+It's not the cheapest but I think the level of personalisation, contact and extras more than makes up for the extra few pounds. Raw & Juicy give you up to 6 organic juices, which are made purely from fruit and vegetables and delivery to you daily, so that they're always fresh.
 
 I like going for a 3 day [bespoke cleanse and detox](http://www.raw-and-juicy.com/beskpoke-juice-cleansing-3-90/4576023589). Stephanie (who's the founder) is always more than happy to chat about what you want to acheive, if you want to exclude anything or give advice about getting through the first few times you do it.
 
