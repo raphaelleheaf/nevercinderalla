@@ -2,7 +2,7 @@
 layout: post
 title:  "Cocktails and lingerie: Champagne cocktail"
 date:   2015-01-08 23:05:13
-categories: fashion, mixology
+categories: mixology
 ---
 
 ![Champagne and lingerie](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/champ_and_lulu.jpg)
