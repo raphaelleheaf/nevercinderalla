@@ -23,8 +23,8 @@ Although this is a great cocktail for Christmas, the spiced bitters and warming 
 
 Serve in a Champagne coupe...
 
-1 cube brown sugar
-3 dashes Angustora bitters 
+1 cube brown sugar  
+3 dashes Angustora bitters  
 1 shot Apricot brandy  
 Top with Prosecco
 
