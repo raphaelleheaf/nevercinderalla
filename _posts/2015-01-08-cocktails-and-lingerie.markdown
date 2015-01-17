@@ -28,7 +28,7 @@ Serve in a Champagne coupe...
 1 shot Apricot brandy  
 Top with Prosecco
 
-How to make: Coat the sugar with the bitters and place it in the glass. Pour the apricot brandy over the sugar cube. Top up with Prosecco.
+**How to make:** Coat the sugar with the bitters and place it in the glass. Pour the apricot brandy over the sugar cube. Top up with Prosecco.
 
 Delicious!
 
