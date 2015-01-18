@@ -13,33 +13,39 @@ Fancy joining me? Here's a selection of what I've been up to.
 
 ![Aviation](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/aviation.jpg)
 
-* 2oz gin  
-* 0.5oz Marashino Liquor  
-* 0.25oz Crème de Voilette  
-* 0.5oz fresh lemon juice  
+Serve in a Martini glass...
 
-Ice, shake and serve with a cherry.
+* 2 shots gin  
+* 1/2 shot Marashino liqueur  
+* 1/4 shot Crème de Voilette  
+* 1/2 shot fresh lemon juice   
+
+**How to make:** Half fill a cocktail shaker ice. Add the gin, the Marachino liqueur, the Crème de Voilette and the lemon juice. Give a long shake and pour out through a strainer into the chilled glass. Serve with a marashino cherry garnish.
 
 ##Whisky Sour
 
 ![Whisky Sour](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/whisky_sour.jpg)
 
-* 2oz whisky or bourbon  
-* 0.75oz fresh lemon juice  
-* 0.75oz simple syrup  
+Serve in a cocktail coupe...
+
+* 2 shots whisky or bourbon  
+* 3/4 shot fresh lemon juice  
+* 3/4 simple syrup  
 * 1 egg white  
 
-Shake dry, ice, shake and serve with a lemon or orange wedge.
+**How to make:** First add the egg white to a cocktail shaker and shake  well. Fill the shaker two thirds full of ice and add the rest of the ingredients. Give a long shake and then strain and serve into a chilled glass. Garnish with a lemon or orange slice and a cherry.
 
 ##Mint Julep
 
 ![Mint Julep](https://raw.githubusercontent.com/raphaelleheaf/nevercinderella/gh-pages/_assets/mint_julep.jpg)
 
-* 2oz bourbon  
-* 0.25oz simple syrup  
-* 10 springs of fresh mint  
+Ideally served in a Julep tin glass...
 
-Muddle the mint & simple syrup, stir in the bourbon, add crushed ice and garnish with mint.
+* 2 shots bourbon  
+* 1/4 shot sugar syrup  
+* 12 fresh mint leaves  
+
+**How to make:** In the tin glass add the mint and the sugar syrup. Muddle together, before filling with crushed ice. Add the bourbon and stir with a bar spoon. Top with more crushed ice and continue to stir until the drink filll the glass. Garnish with a sprig of mint.
 
 
 Keep in touch by following me on [Twitter](https://twitter.com/cinderellanever) 
