@@ -17,7 +17,7 @@ I've never done well with diets and I particularly dislike going to the gym. All
 
 I live a good life and I've been lucky enough to travel a lot. I have pretty decent job, a house, pets, and great friends. I didn't feel that I was being all that awful with what I ate or how active I was but I did think that I could change my lifestyle to get back on track and feel more postiive.
 
-I'm not sure if I suffer from depression but I have days which can get pretty low. I've got home and burst into tears and then felt guilty for feeling that way. I also suffer from anxiety attacks and it's taken me a number of years to help recognise some of my triggers so I can better control them. All of this and threee years of singledom has taken it's toll. 30+ and cooking for yourself every night is a lonely place at times.
+I'm not sure if I suffer from depression but I have days which can get pretty low. I've got home and burst into tears and then felt guilty for feeling that way. From a young age I also suffered from anxiety attacks and it's taken me a number of years to help recognise some of my triggers so I can better control them, along with some hypnosis. All of this and threee years of singledom has taken its toll. 30+ and cooking for yourself every night is a lonely place at times.
 
 ##Embarking on a [Happiness Project](http://www.gretchenrubin.com/books/the-happiness-project/about-the-book/)
 
